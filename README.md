@@ -42,5 +42,5 @@ Their paths cross unexpectedly, leading to a deep and touching relationship that
 
 ### Additional Info
 
-- **IMDb:** [Drawing Closer (2024)](https://www.imdb.com/title/tt31483936/)  
+- **IMDb:** [Drawing Closer (2024)](https://m.imdb.com/title/tt31078761/?ref_=nv_sr_srsg_0_tt_8_nm_0_in_0_q_drawing)  
 - **Streaming on:** Netflix (available in select regions) 
